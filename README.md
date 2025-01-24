@@ -47,8 +47,8 @@ I utilize a **Super Scalping Strategy** tailored for the **20-second timeframe**
 
 ### 📬 Get in Touch
 - **LinkedIn**: [Nandagopal B](https://www.linkedin.com/in/nandagopal-b-a4a680316)
-- **GitHub**: [Your GitHub Username](https://github.com/your-username)
-- **Email**: your-email@example.com
+- **GitHub**: [Your GitHub Username](https://github.com/Toxxy007)
+- **Email**: nandagopalbofficial@gmail.com
 
 ---
 
